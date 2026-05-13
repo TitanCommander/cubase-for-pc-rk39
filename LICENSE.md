@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows premium Tool: project-templates & synthesizers offers the most advanced Cubase for PC | Cubase for Windows tool, with project-templates and
 
 
 
